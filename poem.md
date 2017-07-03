@@ -27,4 +27,4 @@ You do not enlist by the thousand,
 You truly are cowards indeed.
     
     
- **-Written by the great _George Orwell_** (real name: Eric Arthur Blair)   
+* **Written by the great _George Orwell_** (real name: Eric Arthur Blair)   
