@@ -1,4 +1,4 @@
-# Awake! Young Men of England
+# [Awake! Young Men of England](http://www.public-domain-poetry.com/george-orwell-eric-arthur-blair/awake-young-men-of-england-6421)
 
 Oh! give me the *strength* of the Lion,
 
